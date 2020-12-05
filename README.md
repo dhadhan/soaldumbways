@@ -1,0 +1,2 @@
+# soaldumbways
+untuk soal dumbways
